@@ -38,7 +38,8 @@
 * [`Mhankbarbar`](https://github.com/MhankBarBar)
 
 
+
 ## Sosmed
-* [`YouTube`](https://youtube.com/channel/UCdAlsvg9B6llWCWV8JMNhug)
-* [`WhatsApp`](https://chat.whatsapp.com/Hpwp8FBfJMtHEN5KeuFJKw)
+* [`YouTube`](https://youtube.com/channel/UC8BMGsMHb6Hct_N5t99qt4A)
+* [`WhatsApp`](https://chat.whatsapp.com/KGbZp4XP3pZ5m4jWrla2ou)
 * [`Instagram`](https://instagram.com/alvinmaulanay_)
