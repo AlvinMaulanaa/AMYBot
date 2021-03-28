@@ -36,7 +36,7 @@
 * [`Fxc7`](https://github.com/Fxc7)
 * [`DIM5`](https://github.com/D1M5-DARKBOT)
 * [`Mhankbarbar`](https://github.com/MhankBarBar)
-
+* [`denisputraa`](https://github.com/denisputraa) 
 
 
 ## Sosmed
